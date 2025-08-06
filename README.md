@@ -1,4 +1,4 @@
-# Adibuja Industrial Tools, Equipment & Factory Supplies Online - USA
+# Adibuja | Suppliers Marketplace for Industrial Tools | Equipment & Factory Supplies USA
 
 Looking to streamline sourcing for your facility? Explore a reliable catalog of **industrial tools**, **automation parts**, and **PPE gear** sourced from top **USA industrial supply vendors**. Whether you're outfitting a factory floor or upgrading your oilfield operation, our platform supports bulk orders, custom kits, and nationwide delivery.
 
